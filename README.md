@@ -63,6 +63,8 @@ May 14, 2025 - [Memo Endorsement](https://web.archive.org/web/20250602231237/htt
 
 May 29, 2025 - [Motion to Appear Pro Hac Vice](https://web.archive.org/web/20250602231414/https://storage.courtlistener.com/recap/gov.uscourts.nysd.620167/gov.uscourts.nysd.620167.93.0.pdf)
 
+May 29, 2025 - [Motion to Dismiss](https://web.archive.org/web/20250601131426/https://storage.courtlistener.com/recap/gov.uscourts.nysd.615997/gov.uscourts.nysd.615997.95.0.pdf)
+
 May 29, 2025 - [Letter](https://web.archive.org/web/20250602231617/https://storage.courtlistener.com/recap/gov.uscourts.nysd.620167/gov.uscourts.nysd.620167.98.0.pdf)
 
 May 29, 2025 - [Motion to Supress](https://web.archive.org/web/20250602232610/https://storage.courtlistener.com/recap/gov.uscourts.nysd.620167/gov.uscourts.nysd.620167.99.0.pdf)
