@@ -47,6 +47,8 @@ March 18, 2025 - [Status Conference](https://web.archive.org/web/20250602225221/
 
 April 1, 2025 - [Memo Endorsement](https://web.archive.org/web/20250602225906/https://storage.courtlistener.com/recap/gov.uscourts.nysd.620167/gov.uscourts.nysd.620167.81.0.pdf)
 
+April 7, 2025 - [Blanche Memo](https://web.archive.org/web/20250528102226/https://www.justice.gov/dag/media/1395781/dl?inline)
+
 April 28, 2025 - [Joint Letter](https://storage.courtlistener.com/recap/gov.uscourts.nysd.620167/gov.uscourts.nysd.620167.84.0.pdf)
 
 April 29, 2025 - [Memo Endorsement](https://web.archive.org/web/20250602230101/https://storage.courtlistener.com/recap/gov.uscourts.nysd.620167/gov.uscourts.nysd.620167.85.0.pdf)
